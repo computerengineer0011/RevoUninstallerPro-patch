@@ -1,0 +1,1 @@
+# RevoUninstallerPro-patch
